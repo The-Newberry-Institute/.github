@@ -4,5 +4,5 @@ We are the premiere Democracy Center located in middle Georgia.
 TNIDC is a nonprofit nonpartisan volunteer organization open to all.
 
 
-Twitter [Twitter](https://twitter.com/NewberryInst).
+[Twitter](https://twitter.com/NewberryInst).
 
