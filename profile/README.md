@@ -19,7 +19,6 @@ Twitter--[@NewberryInst](https://twitter.com/NewberryInst).
 
 E-mail--[info@thenewberryinstutute.org](info@thenewberryinstutute.org).
 
-Phone [+1-443-223-1669]
 ---
 ⭐️ From [The-Newberry-Institute](https://github.com/The-Newberry-Institute) 
 
